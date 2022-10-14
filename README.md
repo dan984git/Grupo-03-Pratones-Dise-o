@@ -1,1 +1,1 @@
-# Grupo-03-Pratones-Dise-o
+# Grupo-03-Pratones-Diseno
